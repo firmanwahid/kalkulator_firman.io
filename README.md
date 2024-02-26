@@ -1,0 +1,1 @@
+# kalkulator_firman.io
